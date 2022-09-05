@@ -16,6 +16,10 @@
    🔗📇 Contact Me
 
      📧 Email: pelumi.abd@gmail.com
+
+     ☎️ Hotline : 08165438019
+
+     📱 WhatsApp: 08091963767
      
 
 <!---
